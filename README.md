@@ -1,5 +1,7 @@
-**Bookkeepinh**
+**Bookkeeping**
+
 **Professional Bookkeeper | Certified QuickBooks Pro | Xero |Accountant**
+
 “Ufaq helped me so much in my business over the past year. When she started, we had 18 months of bookkeeping to catch up on, and she tackled it without issue. She is very responsive, willing to learn, focused on the best interests of the business, and incredibly professional. I am very grateful to her! Highly recommend. ” -- Stephanie Lombardo
 
 Hello! Ufaq M. Call me Evelyn (name for client easement). I really enjoy bookkeeping because I love working with numbers. It makes me happy. I have an MBA in Accounting & Finance and have been doing bookkeeping for clients for more than 8 years. Also, I know QuickBooks Online really well because I'm a certified expert. I've worked a lot with other tools too, like Gusto, PayPal, Stripe, Square, Bill.com, Dext, Google Sheets, and Excel.
