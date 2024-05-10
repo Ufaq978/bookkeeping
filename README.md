@@ -1,4 +1,4 @@
-#Bookkeeping #Accounting #bankreconciliation #financialstatements
+Bookkeeping
 Professional Bookkeeper | Certified QuickBooks Pro | Xero |Accountant
 “Ufaq helped me so much in my business over the past year. When she started, we had 18 months of bookkeeping to catch up on, and she tackled it without issue. She is very responsive, willing to learn, focused on the best interests of the business, and incredibly professional. I am very grateful to her! Highly recommend. ” -- Stephanie Lombardo
 
